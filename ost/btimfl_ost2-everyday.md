@@ -17,7 +17,7 @@ Open my closed heart\
 Loving you\
 Come closer to me\
 Hold me more warmly\
-Until always\
+Until always
 
 I want to be a special person\
 I want to tell you, if you're waiting\
@@ -41,7 +41,7 @@ Until always
 
 I want to be a special person\
 I want to tell you, if you're waiting\
-I'm in love with you
+I'm in love with you\
 Every day
 
 Only you are in my head\
@@ -57,5 +57,5 @@ Until always
 
 I want to be a special person\
 I want to tell you, if you're waiting\
-I'm in love with you
+I'm in love with you\
 Every day

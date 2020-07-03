@@ -27,7 +27,7 @@ All day, up and down\
 I just cannot figure it out
 
 Without time to rest\
-Everything passes by agian today
+Everything passes by again today
 
 Lalala lalalala lalala lalalala\
 I am thinking about you\
