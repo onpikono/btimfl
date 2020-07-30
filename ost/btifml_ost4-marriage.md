@@ -5,7 +5,7 @@
 Marriage is about\
 Picking pretty words\
 Saying pretty compliments\
-And making apretty night
+And making a pretty night
 
 Marriage is about\
 Meeting a good person\

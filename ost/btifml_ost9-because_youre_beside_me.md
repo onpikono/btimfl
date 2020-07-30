@@ -38,7 +38,7 @@ Over the clouds in the dark, night sky\
 The stars twinkled
 
 I want to believe\
-Becaue of you\
+Because of you\
 I'm walking again\
 My faraway footsteps are going to you\
 The love that pulled me through
