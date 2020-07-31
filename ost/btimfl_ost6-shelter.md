@@ -1,6 +1,6 @@
 # Shelter
 
-**Artist:** Hee Jin ft. Lee Yo Han
+**Artist:** Hee Jin ft. John OFA Rhee
 
 The air is different from yesterday\
 Everything has changed\
